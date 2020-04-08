@@ -13,7 +13,7 @@ My Hobbies includes.
 2. Strolling/Swimming around the Beach.
 3. Reading Philisophical and Life Hacks Books.
 
-The Following People Inspired me are :
+The Following People that inspired me are the following :
 
 Tech :
   Bill Gates, Steve Jobs, Mark Zuckerberg, Daniel Bourke, Andrei Neagoie, Albert Padin and Dave Overton
